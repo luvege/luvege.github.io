@@ -5,7 +5,7 @@ any vid ideas? contact me on escdm6@gmail.com!
 # Social Medias
 ### yt: https://www.youtube.com/@Luevvege
 ### roblos: EduTest12
-### rec room: @gruesome
+### rec room: @gruesomeRR
 # my fav vids on yt:
 ### RecWare (RecRoom × WarioWare)
 ### Meet the YTP Sniper
